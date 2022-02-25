@@ -1,6 +1,3 @@
-![image](https://user-images.githubusercontent.com/53280945/155632658-7b637b7e-16b0-4daa-8d30-cca09143b799.png)
-
-
 # #1 Challenge Oracle ONE!
 
 
